@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @77candyyy
+- 👀 I’m interested in web developing
+- 📫 Discord: candyyy#7777
